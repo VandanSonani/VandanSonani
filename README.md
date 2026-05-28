@@ -17,7 +17,7 @@ I am a versatilist and easily adapt to different hats (Full Stack Web Developer 
 - 👨🏻‍💻 &nbsp; Most of my projects are available on [Github](https://github.com/VandanSonani?tab=repositories)
 - 💬 &nbsp; Ask me about anything tech related, I am happy to help and learn!
 - 📫 &nbsp; Feel free to ping me on [LinkedIn](https://www.linkedin.com/in/vsonani/)
-- 📝 &nbsp; Checkout my [resume](https://drive.google.com/file/d/1Xptfel0UaC21AkKd3hrlPtUm72NMzJef/view?usp=sharing)
+- 📝 &nbsp; Checkout my [resume](https://drive.google.com/file/d/1ZswJ_vJe05GXgMkSNIzeMDpmBqo2Pi9k/view?usp=sharing)
 - 📚 &nbsp; When I am free, I read fantasy and fiction novels. 
 
 <br>
